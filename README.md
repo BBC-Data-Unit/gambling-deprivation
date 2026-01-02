@@ -17,4 +17,27 @@ We then divided the number of each local authority’s AGCs in the bottom two de
 * [Indices of Multiple Deprivation for Wales](https://www.gov.wales/welsh-index-multiple-deprivation) 
 * [Indices of Multiple Deprivation for Scotland](https://publichealthscotland.scot/resources-and-tools/health-intelligence-and-data-management/geography-population-and-deprivation-support/deprivation/scottish-index-of-multiple-deprivation-simd/) 
 
+## Interviews 
+
+* Anna Hargrave, CEO of charity Gamble Aware
+* Allastar Gair, communications director, gambling industry trade association BACTA
+* Deborah Heneghan, councillor, Kings Lynn
+* Spokesman, Gambling Commission
+* Charlie Barker, recovering gambling addict
+* Local Government Association
+* Spokesman, Ministry of Housing, Communities and Local Government
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
